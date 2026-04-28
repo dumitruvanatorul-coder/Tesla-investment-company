@@ -35,4 +35,13 @@ For support or inquiries, please visit our website.
 ## ⚠️ Disclaimer
 This project is not affiliated with any external companies or brands. Always do your own research before making financial decisions.
 
----
+---<!DOCTYPE html>
+<html>
+<head>
+    <title>My Website</title>
+</head>
+<body>
+    <h1>Welcome to My Website</h1>
+    <p>This is my first website.</p>
+</body>
+</html>
