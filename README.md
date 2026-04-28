@@ -42,14 +42,15 @@ Email address and password
 
 ## WhatsApp Contact +1(367)987-6202
 For support or inquiries, please visit our website.
-</html>https://teslacryptocurrencyinvestmentdogefather01r.com
+https://teslacryptocurrencyinvestment@01r.com
+
 ---
 
 ## ⚠️ Disclaimer
 This project is not affiliated with any external companies or brands. Always do your own research before making financial decisions.
 
 ---<!DOCTYPE html>
-</html>https://teslacryptocurrencyinvestmentdogefather01r.com
+https://teslacryptocurrencyinvestment@01r.com
 <head>
     <title>My Website</title>
 </head> Tesla cryptocurrency investment
@@ -57,4 +58,4 @@ This project is not affiliated with any external companies or brands. Always do 
     <h1>Welcome to My Website</h1>
     <p>This is my first website.</p>
 </body>
-</html>https://teslacryptocurrencyinvestment@01r.com
+https://teslacryptocurrencyinvestment@01r.com
