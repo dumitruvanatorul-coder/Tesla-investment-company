@@ -1,19 +1,22 @@
 </html>https://teslacryptocurrencyinvestment@01r.com
 
-Welcome to Teslacryptoinvestmentcompany — a platform focused on cryptocurrency investment STANDARD PLAN 👇
-Earning 82% ROI each day 
-Minimum deposit - (::)$5,000 = $31,150.00 (::) $10,000 = $57,400.00
-(::)$14,000 = $80,360.00
+Welcome to Teslacryptoinvestmentcompany — 
 
-LUXURY PLAN 👇
-Earning 85% ROI each day 
+a platform focused on cryptocurrency investment 
+
+STANDARD PLAN 👇Earning 82% ROI each day 
+
+Minimum deposit - (::)$5,000 = $31,150.00 (::) $10,000 = $57,400.00(::)$14,000 = $80,360.00
+
+LUXURY PLAN 👇Earning 85% ROI each day 
+
 Minimum deposit -  (::)$15,000 =$89,250.00 (::) $20,000 = $119,000.00 (::) $50,000 = $297,500.00
 
 ---
 
 ## 🌐 Official Website
 👉 [Visit Our Website](https://teslacryptocurrencyinvestment@01r.com)
-
+trade Sell Buy Deposit.Withdrawl
 ---
 
 ## 📌 About
@@ -23,8 +26,11 @@ This project is designed to provide users with access to digital investment tool
 
 ## ⚙️ Features
 - Secure investment system
+
 - Easy-to-use interface
+
 - Fast transactions
+
 - 24/7 support
 
 ---
